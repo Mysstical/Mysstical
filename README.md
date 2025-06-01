@@ -1,5 +1,5 @@
 ### Hi there I'm Dom!! 👋
 
-IM TERRIBLE AT PROGRAMMING!
+I program sometimes
 
-woof
+:)
